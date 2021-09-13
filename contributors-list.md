@@ -20,3 +20,8 @@ Born and brought up in Bengaluru. A Harry Potter fanatic and occasional keyboard
 Willing to wage a war with anyone who thinks that pineapple on pizza is okay. <br />
 
 
+**Name** : Vijit Kumar <br />
+**Link to profile** : [vk](https://github.com/VijitKumar27) <br />
+**About Me** : <br />
+Stick to my intuitions!Life is Beautiful!!!! <br />
+
